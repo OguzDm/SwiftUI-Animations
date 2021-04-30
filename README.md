@@ -19,18 +19,6 @@ https://user-images.githubusercontent.com/33404285/116758466-c1113700-aa18-11eb-
 
 
 
-https://user-images.githubusercontent.com/33404285/116758523-e4d47d00-aa18-11eb-8b47-f3adce417cd5.mov
-
-
-https://user-images.githubusercontent.com/33404285/116758555-fcac0100-aa18-11eb-86f7-5290bb9dff1c.mov
-
-
-https://user-images.githubusercontent.com/33404285/116758610-1baa9300-aa19-11eb-9055-b67103b7c946.mov
-
-
-
-https://user-images.githubusercontent.com/33404285/116758648-34b34400-aa19-11eb-8d58-3822c1f157c1.mov
-
 
 
 
